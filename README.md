@@ -7,7 +7,7 @@
 
 ### 🤔 Who am I?
 
-Currently I am studying at Technical University of Munich 🏫 , as a doctoral student 👨‍🎓 (👨‍).
+Currently I am studying at Technical University of Munich 🏫 , as a doctoral student 👨‍🎓 (👨‍🦲).
 
 ---
 
